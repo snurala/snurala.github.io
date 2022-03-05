@@ -1,1 +1,0 @@
-# snurala.github.io
